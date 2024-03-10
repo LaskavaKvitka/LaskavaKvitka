@@ -1,1 +1,3 @@
-- 👋 Hi, I’m @LaskavaKvitka
+- 👋 Hi, I’m Kv1tka
+- 💾 Gamer
+- 🗿 Graphic designer
